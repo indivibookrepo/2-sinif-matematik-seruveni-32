@@ -1,0 +1,1 @@
+# 2-sinif-matematik-seruveni-32
